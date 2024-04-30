@@ -8,7 +8,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Shaheer-zahid/Shaheer-Zahid](https://github.com/Shaheer-zahid/Shaheer-Zahid)
 
-- 📫 How to reach me **https://www.instagram.com/shaheer139/**
+- 📫 How to reach me **https://www.instagram.com/shaheer139/** & **shaheer139@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
