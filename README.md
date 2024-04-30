@@ -8,6 +8,7 @@
 - 📫 How to reach me :
 - Instagram : **https://www.instagram.com/shaheer139/**
 - Gmail : **shaheer139@gmail.com**
+- LinkedIn : **https://www.linkedin.com/in/shaheer-zahid-027s/**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
